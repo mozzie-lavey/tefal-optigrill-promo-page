@@ -1,1 +1,0 @@
-# tefal-optigrill-promo-page
